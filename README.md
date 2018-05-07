@@ -6,5 +6,5 @@
 ### New information will be added periodically
 ### So come here often
 ***
-### Suggestions are alway welcome
+### Suggestions are always welcome
 
